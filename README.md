@@ -1,3 +1,5 @@
+[Mofeola Blessing Lijoka CV.pdf](https://github.com/Mofe-Blessing/Mofe-Blessing/files/9169634/Mofeola.Blessing.Lijoka.CV.pdf)
+[Mofeola Blessing Lijoka CV.pdf](https://github.com/Mofe-Blessing/Mofe-Blessing/files/9169636/Mofeola.Blessing.Lijoka.CV.pdf)
 - 👋 Hi, I’m @Mofe-Blessing, a Quality Assurance and Customer Experience Specialist and my curiousity to learn, grow and develop my skills brought me here.
 - 👀 I’m interested in as many learning opportunities as possible and I am open to taking on challenging job opportunities[Mofeola Blessing Lijoka CV.pdf](https://github.com/Mofe-Blessing/Mofe-Blessing/files/9167959/Mofeola.Blessing.Lijoka.CV.pdf)
 .
