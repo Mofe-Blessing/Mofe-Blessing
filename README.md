@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Mofe-Blessing, a Quality Assurance and Customer Experience Specialit and my curiousity to learn, geow and develop my skills brought me here.
+- 👋 Hi, I’m @Mofe-Blessing, a Quality Assurance and Customer Experience Specialist and my curiousity to learn, geow and develop my skills brought me here.
 - 👀 I’m interested in as many learning opportunities as possible and I am open to taking on challenging job opportunities[Mofeola Blessing Lijoka CV.pdf](https://github.com/Mofe-Blessing/Mofe-Blessing/files/9167959/Mofeola.Blessing.Lijoka.CV.pdf)
 .
 - 🌱 I’m currently learning to store, track, and collaborate on software projects.
